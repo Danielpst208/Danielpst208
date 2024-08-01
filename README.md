@@ -7,7 +7,7 @@ meu nome é Daniel Paes
 
 ° Utilizo esse espaço para organização e compartilhamento dos meus projetos desevolvidos
 
-## Você pode entrar em contato comigov
+## Você pode entrar em contato comigo
 
 
 00001142977924sp@al.educacao.sp.gov.br
